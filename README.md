@@ -1,2 +1,0 @@
-# PC
-Cosas mías
